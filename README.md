@@ -1,0 +1,1 @@
+# mugiyarou.github.io
